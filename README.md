@@ -1,0 +1,2 @@
+# Linguistik
+tentang linguistik
